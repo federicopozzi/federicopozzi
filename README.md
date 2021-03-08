@@ -1,4 +1,4 @@
-### 25 years old, builder of lego.
+### 25 years old, builder of lego 🧱.
 
 
 ## About Me
