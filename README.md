@@ -4,6 +4,6 @@
 ## About Me
 :mortar_board: Communication Designer
 
-:laptop: A bit Nerdy
+💻: A bit Nerdy
 
 :rocket: 3dPrint passionate
