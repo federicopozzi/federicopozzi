@@ -10,4 +10,4 @@
 
 :rocket:  3dPrint passionate
 
-[![trophy](https://github-profile-trophy.vercel.app/federicopozziryo-ma)](https://github.com/ryo-ma/github-profile-trophy)
+[![trophy](https://github-profile-trophy.vercel.app/?federicopozzi=ryo-ma)](https://github.com/ryo-ma/github-profile-trophy)
