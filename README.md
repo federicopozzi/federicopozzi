@@ -2,10 +2,10 @@
 
 
 ## About Me
-:mortar_board:  Communication Designer 
+:mortar_board: &nbsp; Communication Designer 
 
 💪🏽 &nbsp; [My Portfolio Here](https://federicopozzi.github.io/portfolio/)
 
-🆘  A bit Nerdy
+🆘 &nbsp; A bit Nerdy
 
-:rocket:  3dPrint passionate
+:rocket: &nbsp; 3dPrint passionate
