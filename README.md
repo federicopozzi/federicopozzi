@@ -4,7 +4,7 @@
 ## About Me
 :mortar_board:  Communication Designer 
 
-💪🏽  [My Portfolio Here](https://federicopozzi.github.io/portfolio/)
+💪🏽 &nbsp; [My Portfolio Here](https://federicopozzi.github.io/portfolio/)
 
 🆘  A bit Nerdy
 
