@@ -1,5 +1,6 @@
 ### 25 years old, builder of lego 🧱.
 
+Currently destroying things @[SuperForma](https://superforma.xyz/)
 
 ## About Me
 :mortar_board: &nbsp; Communication Designer 
@@ -10,4 +11,4 @@
 
 :rocket: &nbsp; 3dPrint passionate
 
-Currently destroying things @[SuperForma](https://superforma.xyz/)
+
