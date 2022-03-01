@@ -10,6 +10,3 @@
 💪🏽 &nbsp; [My Portfolio Here](https://federicopozzi.github.io/)
 
 :rocket: &nbsp; 3dPrint
-
-
-## 
