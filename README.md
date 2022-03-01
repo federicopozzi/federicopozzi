@@ -2,6 +2,8 @@
 
 🆘 &nbsp; Currently destroying things [@SuperForma](https://superforma.xyz/)
 
+🧑🏻‍💻 &nbsp; Human Factor and Smart Tools Teacher [@ScuolaCova](https://www.scuolacova.it/)
+
 ## About Me
 :mortar_board: &nbsp; Communication Designer 
 
