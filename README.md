@@ -13,6 +13,3 @@
 
 
 ## 
-[![Federico Pozzi GitHub - Overview](https://github-readme-stats.vercel.app/api?username=federicopozzi&show_icons=true&theme=vue-dark&locale=en)](https://github.com/federicopozzi?tab=repositories&sort=stargazers)
-
-
