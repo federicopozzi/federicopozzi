@@ -1,6 +1,5 @@
-### 26 years old, builder of lego 🧱.
+### 27 years old, builder of lego 🧱.
 
-🆘 &nbsp; Currently destroying things [@SuperForma](https://superforma.xyz/)
 
 🧑🏻‍💻 &nbsp; Human Factor and Smart Tools Teacher [@ScuolaCova](https://www.scuolacova.it/)
 
