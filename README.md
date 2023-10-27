@@ -4,7 +4,6 @@
 
 ✏️ &nbsp; Technology and IT Teacher [@IstitutoSanGiuseppe](https://milano.scuolededalo.it/)
 
-🧑🏻‍💻 &nbsp; Human Factor and Smart Tools Teacher [@ScuolaCova](https://www.scuolacova.it/)
 
 ## About Me
 :mortar_board: &nbsp; Communication Designer 
