@@ -2,7 +2,11 @@
 
 💻 &nbsp; Software and IT Teacher [@ImmaginazioneeLavoro](https://immaginazioneelavoro.it/)
 
-✏️ &nbsp; Technology and IT Teacher [@IstitutoSanGiuseppe](https://milano.scuolededalo.it/)
+🔥 I love creating fun projects and discovering the stories my students share with me. 
+
+🚀 I believe code is a way to learn, tell stories, and have fun together.
+
+> "Every bug is just an adventure in disguise." 🐞
 
 
 ## About Me
